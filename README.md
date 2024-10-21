@@ -2,3 +2,5 @@ Pertemuan 4
 Dedicated Server
 Shared Hosting
 Colocation Server
+kwkwkdakdkawdjkajdkaswdddddddddddddddddddwk
+wwwwwwwjajdkakjwjkarjkajrkajrkajwkrjakjrkawsksssawrar
